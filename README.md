@@ -5,19 +5,15 @@
 
 <p align="left"> <a href="https://twitter.com/ferdous6669" target="blank"><img src="https://img.shields.io/twitter/follow/ferdous6669?logo=twitter&style=for-the-badge" alt="ferdous6669" /></a> </p>
 
-- 🔭 I’m currently working on **computer network study**
 
-- 🌱 I’m currently learning **Computer since**
 
-- 🤝 I’m looking for help with **Meta**
+- I regularly write articles on [https://dietaeperditadipeso3434.blogspot.com/202](https://dietaeperditadipeso3434.blogspot.com)
 
-- 📝 I regularly write articles on [https://dietaeperditadipeso3434.blogspot.com/202](https://dietaeperditadipeso3434.blogspot.com/202)
+- 💬 Ask me about **🫡👇**
 
-- 💬 Ask me about **🫡**
+-    **Ferdoustypo@gmail.com**
 
-- 📫 How to reach me **Ferdoustypo@gmail.com**
-
-- ⚡ Fun fact **🖕🥱**
+-  	**🖕🥱**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
