@@ -11,11 +11,11 @@
 
 - 🤝 I’m looking for help with **Meta**
 
-- 📝 I regularly write articles on [https://dietaeperditadipeso3434.blogspot.com/](https://dietaeperditadipeso3434.blogspot.com)
+- 📝 I regularly write articles on [https://dietaeperditadipeso3434.blogspot.com/202](https://dietaeperditadipeso3434.blogspot.com/202)
 
 - 💬 Ask me about **🫡**
 
-- 📫 How to reach me **Ferdousx33@gmail.com**
+- 📫 How to reach me **Ferdoustypo@gmail.com**
 
 - ⚡ Fun fact **🖕🥱**
 
@@ -23,6 +23,7 @@
 <p align="left">
 <a href="https://twitter.com/ferdous6669" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="ferdous6669" height="30" width="40" /></a>
 <a href="https://linkedin.com/in/muhammadferdous" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="muhammadferdous" height="30" width="40" /></a>
+<a href="https://fb.com/https://www.facebook.com/profile.php?id=100000376175770&mibextid=zbwkwl" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="https://www.facebook.com/profile.php?id=100000376175770&mibextid=zbwkwl" height="30" width="40" /></a>
 <a href="https://instagram.com/ferdousxten" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="ferdousxten" height="30" width="40" /></a>
 <a href="https://www.youtube.com/c/fx3-gaming" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="fx3-gaming" height="30" width="40" /></a>
 </p>
