@@ -7,7 +7,7 @@
 
 
 
-- I regularly write articles on [https://dietaeperditadipeso3434.blogspot.com/202](https://dietaeperditadipeso3434.blogspot.com)
+- I regularly write articles on [https://dietaeperditadipeso3434.blogspot.com/](https://dietaeperditadipeso3434.blogspot.com)
 
 - 💬 Ask me about **🫡👇**
 
